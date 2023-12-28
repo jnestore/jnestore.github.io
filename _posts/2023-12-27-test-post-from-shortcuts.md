@@ -1,6 +1,6 @@
 ---
 title: Test Post from Shortcuts
-date: 2023-12-27
+date: 2023-12-27 17:00
 categories: [Tech]
 tags: [shortcuts]
 ---
