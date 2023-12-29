@@ -1,6 +1,6 @@
 ---
 title: Chrysler Museum
-image: https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703879575/udq0buzwowee1nuk3hjz.png
+image: https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703879854/wszzprtlkixlfjjjmsyp.jpg
 ---
 
 Yesterday, I visited the Chrysler Museum in Norfolk, VA.
