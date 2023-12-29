@@ -1,6 +1,7 @@
 ---
 title: Eyes of the Storm
 image: https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703879854/wszzprtlkixlfjjjmsyp.jpg
+tags: [paul mccartney, the beatles, photography]
 ---
 
 ## Eyes of the Storm
