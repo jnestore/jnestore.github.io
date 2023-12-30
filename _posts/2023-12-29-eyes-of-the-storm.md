@@ -36,13 +36,23 @@ Here are some of the photos I took while viewing the exhibit:
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907273/dx0bi9s2khpdmvbnduew.jpg)
 
+![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703955871/u9ctt0mnpj3zu6aselk8.jpg)
+
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907371/zdnlib65u4hc8kobbe1k.jpg)
+
+![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703955821/pqqw0dxgipevtsehdo7g.jpg)
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907498/tyxwgawlhztmu7ncycoh.jpg)
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907539/azkn1bu5qz5u6i1j4svx.jpg)
 
+![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703955669/uygljvudxy0d7fwcfgpo.jpg)
+
+![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703955774/myicqfngapr4xey7matb.jpg)
+
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907575/rr9eycgnx85csbbe2g5m.jpg)
+
+![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703955899/d6l0pgv8b33alnldh9dl.jpg)
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907673/qtruhcsfidepf4wwm7bc.jpg)
 *The view from The Beatles' hotel room in Miami*
@@ -54,6 +64,8 @@ Here are some of the photos I took while viewing the exhibit:
 
 After viewing the McCartney exhibit, I walked around the rest of the gallery.
 Here is some of what I saw:
+
+![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703955596/v5dwwzw5lferjble2zm0.jpg)
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703879175/t20cuteamo4hbsl70jol.jpg)
 
