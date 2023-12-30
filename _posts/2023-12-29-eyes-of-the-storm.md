@@ -20,6 +20,7 @@ Yesterday, I visited the Chrysler Museum in Norfolk, VA to view the Paul McCartn
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907575/rr9eycgnx85csbbe2g5m.jpg)
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907673/qtruhcsfidepf4wwm7bc.jpg)
+*The view from The Beatles' hotel room in Miami*
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907635/mhy80vlysjuwdvf9zrlj.jpg)
 *A camera similar to the one McCartney used*
@@ -50,6 +51,7 @@ Here is some of what I saw:
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703908005/dykd8cskq0ekjibrrwa1.jpg)
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907739/wxras8amhz7npapszixr.jpg)
+*There's a hidden selfie in this one*
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907769/isrg8todfptkjbjn6t80.jpg)
 
