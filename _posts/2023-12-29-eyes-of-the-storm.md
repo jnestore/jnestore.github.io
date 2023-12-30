@@ -20,7 +20,7 @@ It was roughly 4 hours each way, if I took the most direct route, which included
 
 ## The Museum
 
-The museum encourages photography, so I brought along my trusty Sony a7iii cameara and Tamron 28-75mm f/2.8 lens. No flash allowed, so the low-light environments were a fun challenge.
+The museum encourages photography, so I brought along my trusty Sony a7iii camera and Tamron 28-75mm f/2.8 lens. No flash allowed, so the low-light environments were a fun challenge.
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907884/wsw58lgxrlwgwwsazheb.jpg)
 
@@ -29,6 +29,10 @@ The museum encourages photography, so I brought along my trusty Sony a7iii camea
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907932/oizhdsohdkkmqdlgy7fz.jpg)
 
 ## Eyes of the Storm
+
+You can read more about the exhibit above. One of the cool things they offered was an [audio guide](https://apps.apple.com/us/app/bloomberg-connects/id1476456847) narrated by Paul McCartney himself. Unfortunately, cell service in the museum was not very good and the Wi-Fi was flaky, so I didn't get to hear all of the tidbits, but it was still a pleasant enhancement to the experience.
+
+Here are some of the photos I took while viewing the exhibit:
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907273/dx0bi9s2khpdmvbnduew.jpg)
 
