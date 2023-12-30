@@ -13,6 +13,9 @@ Yesterday, I visited the Chrysler Museum in Norfolk, VA to view the Paul McCartn
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907371/zdnlib65u4hc8kobbe1k.jpg)
 
+![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907498/tyxwgawlhztmu7ncycoh.jpg)
+
+
 
 ## The Gallery
 
