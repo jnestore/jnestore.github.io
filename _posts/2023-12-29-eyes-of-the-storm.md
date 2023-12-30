@@ -4,10 +4,27 @@ image: https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703879854/wszzprtlkix
 tags: [paul mccartney, the beatles, photography]
 ---
 
-## Eyes of the Storm
-Yesterday, I visited the Chrysler Museum in Norfolk, VA to view the Paul McCartney exhibit ['Eyes of the Storm'](https://chrysler.org/exhibition/paul-mccartney-photographs/).
+On December 28, I visited the Chrysler Museum in Norfolk, VA to view the Paul McCartney exhibit ['Eyes of the Storm'](https://chrysler.org/exhibition/paul-mccartney-photographs/).
 
 > Captured by Paul McCartney using his own Pentax Camera, Paul McCartney Photographs 1963–64: Eyes of the Storm features more than 250 photographs taken between November 1963 and February 1964, illuminating the period in which The Beatles became international superstars. The photographs were rediscovered in McCartney’s personal archive in 2020.
+
+This is not the first museum to present this exhibition. It's initial run was at the National Portrait Gallery in London this summer. Unfortunately, I wasn't able to get myself over there, but as luck would have it, the exhibit came close enough that I was willing to drive.
+
+## The Drive
+
+Speaking of the drive...
+It was roughly 4 hours each way, if I took the most direct route, which included crossing the ['Chesapeake Bay Bridge Tunnel'](https://www.cbbt.com).
+
+![](https://i.insider.com/59491e41e592edd96f8b4e0a?width=700)
+*Part way through, you drive under the water, through a tunnel - twice!*
+
+## The Museum
+
+![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907884/wsw58lgxrlwgwwsazheb.jpg)
+
+![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907964/bghtfftuu7tk4feepion.jpg)
+
+## Eyes of the Storm
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907273/dx0bi9s2khpdmvbnduew.jpg)
 
@@ -58,11 +75,6 @@ Here is some of what I saw:
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907769/isrg8todfptkjbjn6t80.jpg)
 
-## The Museum
-
-![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907884/wsw58lgxrlwgwwsazheb.jpg)
-
-![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907964/bghtfftuu7tk4feepion.jpg)
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907932/oizhdsohdkkmqdlgy7fz.jpg)
 
