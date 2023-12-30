@@ -8,7 +8,7 @@ On December 28, I visited the Chrysler Museum in Norfolk, VA to view the Paul Mc
 
 > Captured by Paul McCartney using his own Pentax Camera, Paul McCartney Photographs 1963–64: Eyes of the Storm features more than 250 photographs taken between November 1963 and February 1964, illuminating the period in which The Beatles became international superstars. The photographs were rediscovered in McCartney’s personal archive in 2020.
 
-This is not the first museum to present this exhibition. It's initial run was at the ['National Portrait Gallery in London'](https://www.npg.org.uk/whatson/exhibitions/2023/paul-mccartney-photographs-1963–64-eyes-of-the-storm/) this summer. Unfortunately, I wasn't able to get myself over there, but as luck would have it, the exhibit came close enough that I was willing to drive.
+This is not the first museum to present this exhibition. It's initial run was at the [National Portrait Gallery in London](https://www.npg.org.uk/whatson/exhibitions/2023/paul-mccartney-photographs-1963–64-eyes-of-the-storm/) this summer. Unfortunately, I wasn't able to get myself over there, but as luck would have it, the exhibit came close enough that I was willing to drive.
 
 ## The Drive
 
@@ -19,6 +19,8 @@ It was roughly 4 hours each way, if I took the most direct route, which included
 *Part way through, you drive under the water, through a tunnel - twice!*
 
 ## The Museum
+
+The museum encourages photography, so I brought along my trusty Sony a7iii cameara and Tamron 28-75mm f/2.8 lens. No flash allowed, so the low-light environments were a fun challenge.
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907884/wsw58lgxrlwgwwsazheb.jpg)
 
