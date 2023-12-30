@@ -40,6 +40,9 @@ Here is some of what I saw:
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907100/ouzhdnbw8qzsgebfnzdw.jpg)
 
+![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703908493/wtrxsfu6zwfn5bgzbh08.jpg)
+*Of course I had to jump in for a silhouette selfie*
+
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907142/vbzqpzmgxmbwcs9vk2qn.jpg)
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907180/irjcajxkqmilrjd8xa5d.jpg)
