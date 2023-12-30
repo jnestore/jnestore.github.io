@@ -50,3 +50,6 @@ Here is some of what I saw:
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907769/isrg8todfptkjbjn6t80.jpg)
 
+## The Museum
+
+![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907884/wsw58lgxrlwgwwsazheb.jpg)
