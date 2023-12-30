@@ -9,6 +9,8 @@ Yesterday, I visited the Chrysler Museum in Norfolk, VA to view the Paul McCartn
 
 > Captured by Paul McCartney using his own Pentax Camera, Paul McCartney Photographs 1963–64: Eyes of the Storm features more than 250 photographs taken between November 1963 and February 1964, illuminating the period in which The Beatles became international superstars. The photographs were rediscovered in McCartney’s personal archive in 2020.
 
+![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907273/dx0bi9s2khpdmvbnduew.jpg)
+
 ## The Gallery
 
 After viewing the McCartney exhibit, I walked around the rest of the gallery.
