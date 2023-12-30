@@ -34,13 +34,13 @@ You can read more about the exhibit above. One of the cool things they offered w
 
 Here are some of the photos I took while viewing the exhibit:
 
+![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907273/dx0bi9s2khpdmvbnduew.jpg)
+
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703955871/u9ctt0mnpj3zu6aselk8.jpg)
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907371/zdnlib65u4hc8kobbe1k.jpg)
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703955821/pqqw0dxgipevtsehdo7g.jpg)
-
-![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907273/dx0bi9s2khpdmvbnduew.jpg)
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907498/tyxwgawlhztmu7ncycoh.jpg)
 
