@@ -22,6 +22,7 @@ Yesterday, I visited the Chrysler Museum in Norfolk, VA to view the Paul McCartn
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907673/qtruhcsfidepf4wwm7bc.jpg)
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907635/mhy80vlysjuwdvf9zrlj.jpg)
+*A camera similar to the one McCartney used*
 
 ## The Gallery
 
