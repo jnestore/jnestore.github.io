@@ -15,3 +15,5 @@ After viewing the McCartney exhibit, I walked around the rest of the gallery.
 This is probably my favorite shot of the day.
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703879175/t20cuteamo4hbsl70jol.jpg)
+
+![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703906808/gtws3oakehhh4birnzbg.jpg)
