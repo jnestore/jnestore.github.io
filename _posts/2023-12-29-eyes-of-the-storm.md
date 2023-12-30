@@ -53,6 +53,7 @@ Here are some of the photos I took while viewing the exhibit:
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907575/rr9eycgnx85csbbe2g5m.jpg)
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703955899/d6l0pgv8b33alnldh9dl.jpg)
+*George Martin*
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907673/qtruhcsfidepf4wwm7bc.jpg)
 *The view from The Beatles' hotel room in Miami*
