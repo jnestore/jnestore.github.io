@@ -69,6 +69,7 @@ Here is some of what I saw:
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703879175/t20cuteamo4hbsl70jol.jpg)
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703906808/gtws3oakehhh4birnzbg.jpg)
+*I liked how I caught the multiple framings of the painting - the frame itself, the red drapery, and the door frame leading from another room*
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703906968/jwpoazzu7flr3trdc1d1.jpg)
 
