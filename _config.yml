@@ -14,7 +14,7 @@ timezone: America/New_York
 # jekyll-seo-tag settings › https://github.com/jekyll/jekyll-seo-tag/blob/master/docs/usage.md
 # ↓ --------------------------
 
-title: nestore.dev # the main title
+title: jnestore.com # the main title
 
 tagline:  # it will display as the sub-title
 
@@ -26,16 +26,16 @@ description: >- # used by seo meta and the atom feed
 url: "https://jnestore.github.io"
 
 github:
-  username: github_username # change to your github username
+  username: jnestore # change to your github username
 
 twitter:
-  username: twitter_username # change to your twitter username
+  username: jnestore # change to your twitter username
 
 social:
   # Change to your full name.
   # It will be displayed as the default author of the posts and the copyright owner in the Footer
   name: John Nestore
-  email: example@domain.com # change to your email address
+  email: john@jnestore.com # change to your email address
   links:
     # The first element serves as the copyright owner's link
     - https://twitter.com/username # change to your twitter homepage
