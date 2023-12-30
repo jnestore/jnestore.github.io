@@ -34,13 +34,13 @@ You can read more about the exhibit above. One of the cool things they offered w
 
 Here are some of the photos I took while viewing the exhibit:
 
-![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907273/dx0bi9s2khpdmvbnduew.jpg)
-
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703955871/u9ctt0mnpj3zu6aselk8.jpg)
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907371/zdnlib65u4hc8kobbe1k.jpg)
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703955821/pqqw0dxgipevtsehdo7g.jpg)
+
+![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907273/dx0bi9s2khpdmvbnduew.jpg)
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907498/tyxwgawlhztmu7ncycoh.jpg)
 
@@ -87,6 +87,8 @@ Here is some of what I saw:
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907427/xc0enhbyv124dtarovye.jpg)
 
+![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703956518/dsicu40yv48z255nsl1m.jpg)
+
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907708/ebvwpspss0ktx1kwcppa.jpg)
 
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703908005/dykd8cskq0ekjibrrwa1.jpg)
@@ -94,7 +96,10 @@ Here is some of what I saw:
 ![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907739/wxras8amhz7npapszixr.jpg)
 *There's a hidden selfie in this one*
 
-![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703907769/isrg8todfptkjbjn6t80.jpg)
+![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703956383/zmeihrzigm2dfygnfbip.jpg)
+
+![](https://res.cloudinary.com/dxzgl1kxh/image/upload/v1703956427/pldugj5mnars7pen76tg.jpg)
+*One more selfie on the way out for good luck*
 
 
 
